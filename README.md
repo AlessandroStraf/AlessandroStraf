@@ -1,5 +1,5 @@
 ## HI 🤙
-I'm Alessandro Strafella and I'm 15 years old! I'm from Italy 🇮🇹 and study of the scientific high school of applied sciences 🏫. 
+I'm Alessandro Strafella and I'm 15 years old! I'm from Italy 🇮🇹 and study of the scientific high school of applied sciences. 🏫 
 
 In my spare time I'm a web developer (maybe) in development. I'm obsessed with intriguing stories or biting research. Since I was a child I have an innate desire to learn new things and yes, the INTERNET is just what I was looking for. 🌐
 
